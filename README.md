@@ -1,3 +1,0 @@
-# thomasrigal.github.io
-
-Welcome !
